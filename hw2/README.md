@@ -1,0 +1,1 @@
+![](https://github.com/Dick1son/IoT/blob/master/hw2/2024-06-26%2016-56-33.mp4)
